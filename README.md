@@ -1,0 +1,1 @@
+# training-day2-activity
